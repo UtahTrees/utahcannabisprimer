@@ -1,2 +1,0 @@
-# utahcannabisprimer
-Utah Cannabis Primer
